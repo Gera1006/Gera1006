@@ -1,4 +1,4 @@
-# ¡Hola, soy Gera1006! 👋
+# ¡Hola, soy Gera! 👋
 
 ¡Bienvenido a mi perfil!  
 Soy un estudiante de **Ingeniería Eléctrica y Electrónica en la UNAM**.  
